@@ -1,0 +1,1 @@
+Dit is het begin van de perfecte documentatie
